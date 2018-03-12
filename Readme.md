@@ -6,4 +6,4 @@ Saiba mais em [wefwhgerhertwertwww.globo.com](http://globo.com)
 
 Modefócaaaaaaaa!!!
 
-Clique aqui para nada acontecer
+Clique aqui para nada acontecer!
